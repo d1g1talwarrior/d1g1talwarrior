@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @d1g1talwarrior
+- gym as a hobbies 
+- currently learning for ICT
+- Businessman, with anyone, at anytime
+- you can reach me with gmail
+- i am very open person and im not afraid to talk to others
